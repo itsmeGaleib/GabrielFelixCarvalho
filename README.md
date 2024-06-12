@@ -1,2 +1,0 @@
-# GabrielFelixCarvalho
-Trabalho escolar
